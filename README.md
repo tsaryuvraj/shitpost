@@ -1,0 +1,2 @@
+# shitpost
+my trashbox
